@@ -1,1 +1,1 @@
-
+ "Explicit" refers to content that contains explicit language, mature themes, or explicit depictions of violence, sexual content, or drug use. When a song or an album is labeled as "explicit," it signifies that the content may be unsuitable for certain audiences, particularly younger listeners, and may contain explicit or controversial language or themes.
